@@ -29,7 +29,7 @@ Use This Link to Get 75% Discount Now:https://samwell.ai/?via=muhammad-bilal
 
 Use This Link to Get 75% Discount Now:https://samwell.ai/?via=muhammad-bilal
 
-Ready to take your writing to the next level? Use the promo code **SAMWELL50** at checkout and enjoy **50% OFF** on your first month! 🎉 Don’t miss this limited-time offer to experience the future of writing.
+Ready to take your writing to the next level? Use the promo code at checkout and enjoy **75% OFF** on your first month! 🎉 Don’t miss this limited-time offer to experience the future of writing.
 
 ---
 
@@ -62,9 +62,9 @@ Use This Link to Get 75% Discount Now:https://samwell.ai/?via=muhammad-bilal
 
 ### **⏳ Don’t Wait – Claim Your Discount Now! ⏳**
 
-The future of writing is here, and it’s called Samwell.ai. With our exclusive promo code **SAMWELL50**, you can enjoy **50% OFF** and experience the power of AI-driven writing. Whether you’re a student, professional, or entrepreneur, Samwell.ai is the tool you’ve been waiting for.  
+The future of writing is here, and it’s called Samwell.ai. With our exclusive promo code , you can enjoy **75% OFF** and experience the power of AI-driven writing. Whether you’re a student, professional, or entrepreneur, Samwell.ai is the tool you’ve been waiting for.  
 
-👉 **Visit Samwell Ai today and use promo code SAMWELL50 to get started!** 👈  
+👉 **Visit Samwell Ai today and use promo code to get started!** 👈  
 
 ---
 
